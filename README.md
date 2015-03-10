@@ -8,7 +8,7 @@ Kite Christianson, DeAndre Capati, David Mattos
  - Patent (???.gov)
  - Icon (fiverr.com)
  - Program it!!!
- - Advertise on Campus
+ - Advertise on Campus/indiegogo.com
  - ???
  - Profit
  
